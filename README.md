@@ -1,6 +1,6 @@
 
 # Here’s a detailed task description for your graphic designer based on your requirements:
-
+- Please review the tasks assigned to your respective roles. Once you complete your tasks, kindly submit your work through our [Task Submission Form](https://forms.gle/yuoth4jhJXiYcNqH6). 
 ---
 
 # Task : Graphic Design for Diwali Promotions
